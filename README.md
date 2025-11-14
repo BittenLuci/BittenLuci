@@ -1,7 +1,7 @@
 # README
 
 <p align="center">
-<img src="https://media.discordapp.net/attachments/1434723924922466439/1437826341377540106/Untitled1726_20251111162745.png?ex=6914a7a1&is=69135621&hm=b05b48aed0a01a50d62fb463959bcd6517fe4258ac1825b210a73762eca7e336&=&format=webp&quality=lossless&width=576&height=410"
+<img src="(https://imgur.com/a/KWJGXCd)"
 </div>
   
 <div align="center">
