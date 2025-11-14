@@ -1,7 +1,7 @@
 # README
 
 <p align="center">
-<img src="https://imgur.com/a/KWJGXCd"
+<img src="https://imgur.com/a/KWJGXCdpng"
 </div>
   
 <div align="center">
