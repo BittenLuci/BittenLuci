@@ -18,7 +18,7 @@
 </p>
 
 <div align="center">
-  <font color="#C90203"><strong>⸝⸝ Lulu ⟢ ⋮ 𝑴𝒖𝒍𝒕𝒊𝒔𝒉𝒊𝒑𝒑𝒆𝒓 𖦹┆ 𝑺𝒉𝒆/𝑯𝒆𝒓 ┆ 𝟏𝟖 𝒚𝒐 ┆ ⋆˙⟡ </strong></font>
+  <font color="#C90203"><strong>⸝⸝ Lulu ⟢ ⋮ 𝑴𝒖𝒍𝒕𝒊𝒔𝒉𝒊𝒑𝒑𝒆𝒓 𖦹┆ 𝑺𝒉𝒆/𝑯𝒆𝒓 ┆ 𝟏𝟖 𝒚𝒐 ┆ 𝑩𝒊𝒑𝒐𝒍𝒂𝒓 ┆ 𝑩𝒂𝒅 𝒎𝒆𝒎𝒐𝒓𝒚 ⋆˙⟡ </strong></font>
 </div> 
 
 <p align="center">
